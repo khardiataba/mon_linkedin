@@ -10,4 +10,4 @@ Passionnée par le développement de solutions modernes et le design haut de gam
 
 Vous pouvez consulter mon parcours complet et entrer en contact avec moi ici :
 
- **[Khardiata Ba](www.linkedin.com/in/khardiata-ba-0705623b7)**
+ **[www.linkedin.com/in/khardiata-ba-0705623b7]**
